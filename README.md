@@ -12,7 +12,7 @@ You will probably find some questionable code here, you have been warned! 😬
 
 ### Connect with me
 * 💼 [**LinkedIn**](https://www.linkedin.com/in/danielelocatelli/)  
-<br>
+
 
 ---
 
